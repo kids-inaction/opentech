@@ -151,12 +151,15 @@
 
 Εξοικειωθήκαμε με τα χαρακτηριστικά και τις λειτουργίες του επιδαπέδιου ρομπότ tale-bot…
 
+<img width="1200" height="900" alt="collage (10)" src="https://github.com/user-attachments/assets/dc6325c6-266f-4d8e-8e55-44740cb3131f" />
 
 Προχωρήσαμε σε διαδραστική «ανάγνωση» και ηχογράφηση αγαπημένων μας silent books, προκειμένου να δημιουργήσουμε μια ακουστική βιβλιοθήκη για παιδιά με οπτική αναπηρία… Τα silent books που αξιοποιήθηκαν ήταν: 1) Walking with Vanessa, 2) Home in a Lunchbox  και 3) Have you filled your bucket today? 
 
 <img width="1200" height="900" alt="collage (9)" src="https://github.com/user-attachments/assets/e4952ae8-64cb-4631-bfdf-5525b6ce771b" />
 
 Δημιουργήσαμε βιβλιοθήκη με αγαπημένα τραγούδια στη νοηματική για παιδιά με κώφωση, τα οποία απέδωσαν οι μαθητές κάθε σχολείου υπό την καθοδήγηση των ειδικών παιδαγωγών: Καρολίδου Ειρήνης, Παπαευαγγέλου Χριστίνας και  Μλαδίνου Παρασκευής. Τα τραγούδια που αξιοποιήθηκαν ήταν: 1) Ουράνιο τόξο, 2) Το τραγούδι της Διαφορετικότητας και 3) Υπάρχουν χέρια…
+
+<img width="1200" height="900" alt="collage (12)" src="https://github.com/user-attachments/assets/95046774-ac70-40a8-bba8-4792e464018c" />
 
 <img width="1081" height="609" alt="Ashampoo_Snap_2026 05 31_22h58m16s_026_" src="https://github.com/user-attachments/assets/0c100e19-6d60-4d2b-a407-e8785f1a4c5b" />
 
