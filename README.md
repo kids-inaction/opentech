@@ -129,13 +129,9 @@
 
 Πραγματοποιήθηκαν πολλές δραστηριότητες εξοικείωσης με την αναπηρία μέσα στις τάξεις των συμμετεχόντων σχολείων ώστε οι μαθητές να αντιληφθούν την ανάγκη και την αξία της δημιουργίας δραστηριοτήτων κατάλληλων για παιδιά ΑΜΕΑ με στόχο την ομαλή ενσωμάτωσή τους στις ομάδες και τις παρέες μας, χωρίς διακρίσεις! 
 
-<img width="720" height="757" alt="682428126_1496716738799651_5679833031439053928_n" src="https://github.com/user-attachments/assets/c545ade6-94c7-4a7d-aec8-c47b74920f5d" /> 
+<img width="1200" height="900" alt="collage (14)" src="https://github.com/user-attachments/assets/fae4fa09-a8ec-48d3-88c5-079755d07de5" />
 
-<img width="640" height="478" alt="708304122_1273089387920664_7337056887724415941_n" src="https://github.com/user-attachments/assets/4f62ff6e-8303-41c6-b51a-f0ff32c66dc1" />
-
-<img width="572" height="572" alt="589781762_1338114198232968_7594217891192632235_n" src="https://github.com/user-attachments/assets/e7135764-86f0-4651-8b7b-c4a3ea0b7585" />    
-
-<img width="600" height="450" alt="collage (11)" src="https://github.com/user-attachments/assets/eb7b9efc-7cf1-4f76-80bc-8886865a28d8" />
+<img width="1200" height="900" alt="collage (15)" src="https://github.com/user-attachments/assets/062a73b4-93c9-4cc3-9dd3-ffdb3da99136" />
 
 Μια μακέτα με την εικόνα μιας ιδανικής τάξης νηπιαγωγείου έδωσε το ερέθισμα για το σχεδιασμό και την υλοποίηση από κοινού σταθμών αισθητηριακής ανακάλυψης για μαθητές που αντιμετωπίζουν αισθητηριακές, μαθησιακές ή άλλες δυσκολίες προκειμένου να τους βοηθήσουν να ενταχθούν στην ομάδα του νηπιαγωγείου ισότιμα και να κατακτήσουν τη γνώση σύμφωνα με τον δικό τους ρυθμό.
 
@@ -169,15 +165,13 @@
 
 <img width="1200" height="900" alt="collage (12)" src="https://github.com/user-attachments/assets/95046774-ac70-40a8-bba8-4792e464018c" />
 
-<img width="1081" height="609" alt="Ashampoo_Snap_2026 05 31_22h58m16s_026_" src="https://github.com/user-attachments/assets/0c100e19-6d60-4d2b-a407-e8785f1a4c5b" />
-
 Δημιουργήσαμε με τη βοήθεια της πλακέτας makey makey και του scratch οπτικοποιημένες και ηχογραφημένες κοινωνικές ιστορίες (social stories) με βασικούς κανόνες συνύπαρξης και συνεργασίας με τίτλο: 1) “Είμαι καλός φίλος” και 2) “Παίζω καλά με τους φίλους μου” για παιδιά στο φάσμα του αυτισμού…
  
 <img width="1200" height="900" alt="collage (8)" src="https://github.com/user-attachments/assets/b67c075c-9b3a-4121-90fd-714938fb3619" />
 
 Δημιουργήσαμε online παιχνίδια σχετικά με την αναγνώριση των συναισθημάτων και τους κανόνες επίλυσης συγκρούσεων για παιδιά με ΔΕΠΥ: 1) Κουίζ με σενάρια  συγκρούσεων στο νηπιαγωγείο, 2) Φτιάχνω τις φατσούλες των συναισθημάτων και 3) Ποιο συναίσθημα ταιριάζει σε κάθε εικόνα;
 
-<img width="1083" height="608" alt="Ashampoo_Snap_2026 05 31_22h59m03s_027_" src="https://github.com/user-attachments/assets/d89a8f8c-fae1-4512-90c1-48bdb0677852" />
+<img width="1200" height="900" alt="collage (13)" src="https://github.com/user-attachments/assets/59ef090b-e3ff-4aac-a29b-a50127f27793" />
 
 Παραστήσαμε τους ηθοποιούς και υποδυθήκαμε τα παιδιά της ιστορίας μας...
 Και δημιουργήσαμε το τελικό μας video!
