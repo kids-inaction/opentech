@@ -188,7 +188,7 @@ https://view.genially.com/6a00992b61db69bce4998cd3
 
 Η διάδοση της πρότασής μας έγινε μέσω των ιστολογίων των σχολείων μας:
 
-1ο Νηπιαγωγείο Λητής:
+1ο Νηπιαγωγείο Λητής: https://blogs.sch.gr/niplitis/2026/06/01/symmetochi-ston-8o-panellinio-diagonismo-anoichton-technologion-stin-ekpaideysi/
 
 1ο Νηπιαγωγείο Αριδαίας: https://blogs.sch.gr/nip1arid/2026/06/01/symmetochi-ston-8o-panellinio-diagonismo-anoichtoy-logismikoy-tis-eellak/
 
