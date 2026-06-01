@@ -192,7 +192,7 @@ https://view.genially.com/6a00992b61db69bce4998cd3
 
 1ο Νηπιαγωγείο Αριδαίας: https://blogs.sch.gr/nip1arid/2026/06/01/symmetochi-ston-8o-panellinio-diagonismo-anoichtoy-logismikoy-tis-eellak/
 
-1ο Νηπιαγωγείο Προσοτσάνης "Αρετή Βογιατζή Μελαδίνη": 
+1ο Νηπιαγωγείο Προσοτσάνης "Αρετή Βογιατζή Μελαδίνη": https://l.facebook.com/l.php?u=https%3A%2F%2Fblogs.sch.gr%2F1niprodra%2F2026%2F06%2F01%2Fsymmetochi-ston-8o-panellinio-diagonismo-anoichton-technologion-stin-ekpaideysi%2F%3Ffbclid%3DIwZXh0bgNhZW0CMTAAYnJpZBEwZTU2OXZpZWx4cUdPaWF4NnNydGMGYXBwX2lkEDIyMjAzOTE3ODgyMDA4OTIAAR5TDjtmaax1cxLxvyDl4hRUAY0tj7KAeuv3vXt5XbYYpPAAWDlP-vERY5N0PA_aem_eYikdcrQR18ocItOXKJSfA&h=AUBJ9MAabiTlvpMwtf9qKRhSGvG3i22D8M3fkK_CVQR0-qcaH_bK0oWGFt5Z45piE1cBJDBKlJL4U7fPp7JXQQKfHIlUR4oIbEF_rrG7Jc_H9AAhq6uQjncNeB-_jRdeNQoTelqJvLMBxd0
 
 
 
